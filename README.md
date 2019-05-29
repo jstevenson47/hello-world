@@ -16,8 +16,15 @@ European History:
 Ferrante I (Ferdinand I) of Naples*
 Edward "Ted" Heath/Enoch Powell/Liberal Democrats
 Spartacist Uprising*
+Decembrist Uprising
+Jacobite Rebellions
+
+Ancient History:
+
 
 Western Thought:
+
 Non-Western Thought:
+Mohism
 
 *might be too hard
